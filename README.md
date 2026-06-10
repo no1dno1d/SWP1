@@ -1,2 +1,2 @@
 Kookmin Univ. SW
-큼.
+큼...
